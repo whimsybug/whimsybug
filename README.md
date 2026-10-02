@@ -6,6 +6,6 @@ Currently learning the fundamentals, experimenting with code every day, and shar
 
 Fun facts:
 
-> Cat Person through and through
-> Tea over coffee, always
-> Rewatching the same comfort show for the 10th time
+- Cat Person through and through
+- Tea over coffee, always
+- Rewatching the same comfort show for the 10th time
